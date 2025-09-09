@@ -17,3 +17,7 @@ My rolemodel is my parents who works hard for us
 They had been sacrificed their happiness and keep on working for us , all three of us we will be sure to make my parents proud
 Secondly my cousion Atchaya is my rolemodel becouse of her self confidence and achievements
 my favourite persons are my parents and my siblings.
+#to faculty
+Firstly i like ur teaching 
+I wish you to support us till the last
+And to teach us more about coding
